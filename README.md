@@ -1,0 +1,4 @@
+- 👋 Hi, I’m Vinicius Pinheiro
+- 💻 Programmer Analyst
+- 👀 https://beacons.page/viniciuspinheiro
+- 📫 @viniciuspdossantos@gmail.com
